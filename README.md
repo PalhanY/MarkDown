@@ -8,7 +8,7 @@ Some of my intrests outside of school include:
 2. Reading
 3. Music
 
-~~I am an absolute degenerate gambler. I need help. **Seriously.
+~~I am an absolute degenerate gambler. I need help. **Seriously.~~
 
 
 Thanks for reading my MarkDown Page! 
