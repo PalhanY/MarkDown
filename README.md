@@ -8,7 +8,7 @@ Some of my intrests outside of school include:
 2. Reading
 3. Music
 
-~~I am an absolute degenerate gambler. I need help. **Seriously.~~
+~~Mizzou is th ebest school in the world.~~
 
 
 Thanks for reading my MarkDown Page! 
