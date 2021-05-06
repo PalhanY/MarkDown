@@ -8,7 +8,7 @@ Some of my intrests outside of school include:
 2. Reading
 3. Music
 
-~~Mizzou is th ebest school in the world.~~
+~~Mizzou is the best school in the world.~~
 
 
 Thanks for reading my MarkDown Page! 
